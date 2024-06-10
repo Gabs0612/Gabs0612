@@ -11,6 +11,4 @@ Meu nome é Gabrielle Piovesan
    Você pode entrar em contato comigo 💌
 
 00001132644823sp@al.educacao.sp.gov.br
-
-
 ![](https://tenor.com/pt-BR/view/thumbs-up-wink-gif-12891588)
